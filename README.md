@@ -1,0 +1,1 @@
+# genshininpact.github.io
