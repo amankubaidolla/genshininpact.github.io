@@ -1,1 +1,1 @@
-# genshininpact.github.io
+# genshinimpact.github.io
